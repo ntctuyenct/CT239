@@ -6,7 +6,7 @@ Nhóm II Niên Luận Cơ Sở KTPM
 
 Học Kì II, 2016 – 2017
 
-GVHD: Nguyễn Thị Thanh Tuyền
+GVHD: Trương Thị Thanh Tuyền
 
 Cần Thơ, Ngày 10 Tháng 01 Năm 2017
 
